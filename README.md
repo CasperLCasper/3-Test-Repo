@@ -4,4 +4,4 @@ SĀKUMS!
 
 TESTĒŠANA!
 
-Turpinām testēšanu!
+Turpinām pārbaudes!
