@@ -1,3 +1,7 @@
 SĀKUMS
 
 4.
+
+=-PQIYUAQ
+;A;LAAB TAYWRD
+9U63vgk
