@@ -6,3 +6,5 @@ SĀKUMS
 [PKA;LKJAKJHAJ
 932hajg aefuytdtrfaukkjasn
 ;laai5w
+oki?=21y6g
+opeiiu
