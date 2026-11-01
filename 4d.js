@@ -6,3 +6,4 @@ SĀKUMS
 ;A;LAAB TAYWRD
 9U63vgk
 ijewiug ywegtyf566
+hy
