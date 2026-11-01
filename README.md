@@ -7,3 +7,5 @@ TESTĒŠANA!
 Turpinām pārbaudes!
 
 Turpinām ar pārbaudēm!
+
+Turpinām!
