@@ -8,3 +8,7 @@ SĀKUMS
 ;laai5w
 oki?=21y6g
 opeiiu
+90378  tf
+][]q3op8tq
+
+  ewoi etf
