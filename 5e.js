@@ -5,4 +5,4 @@ SĀKUMS
 oooSRDoiHJGGYUG7WQ7
 uigqwiH341=-3iu
 ?>>wal;J
-ihjhfhg
+ihjhfhg 6w3rw
