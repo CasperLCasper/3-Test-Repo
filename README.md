@@ -11,3 +11,5 @@ Turpinām ar pārbaudēm!
 Turpinām!
 
 Turpinām ar pārbaudēm!
+
+Turpinām!
