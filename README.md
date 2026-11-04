@@ -9,3 +9,5 @@ Turpinām pārbaudes!
 Turpinām ar pārbaudēm!
 
 Turpinām!
+
+Turpinām ar pārbaudēm!
