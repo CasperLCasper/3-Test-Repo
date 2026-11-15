@@ -8,3 +8,6 @@ SĀKUMS
 ijewiug ywegtyf566
 hy
 -0wu8w837t
+iuuy87
+..,mjaceutge
+=3q-q3ugb ewt
