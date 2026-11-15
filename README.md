@@ -13,3 +13,5 @@ Turpinām!
 Turpinām ar pārbaudēm!
 
 Turpinām!
+
+Ieviesām lielas izmaiņas kodā! Turpinām testēt!
