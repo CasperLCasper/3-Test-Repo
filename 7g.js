@@ -1,1 +1,3 @@
-Sākums!
+SĀKUMS
+
+7.
